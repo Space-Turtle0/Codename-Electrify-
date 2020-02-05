@@ -23,3 +23,9 @@ is VERY important. You need to answer with as much detail as possible, providing
 
 > **Question 6** 
 it is also of GREAT importance: every advice from *Question 5* applies here as well. Feel free to take your time! https://bit.ly/2vM1R5a
+
+> **Question 7** is optional and asks for references. __*References* are the names of Realms/Servers you played on and their owners__. If you don't have any, you can leave this field empty, but if you do, it's the best to complete;
+
+> **Question 8** Is a simple yes/no question;
+
+> **The best of luck!** After you click submit, the application will be sent to the admins and they'll review it, based on your answers. If you did your best, you're sure to be accepted soon. Then you will be whitelisted on the server and will be able to join. ***^~~~~~^***
